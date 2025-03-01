@@ -1,0 +1,1 @@
+# Komputer-do-przenoszenia-maj-tku.-
